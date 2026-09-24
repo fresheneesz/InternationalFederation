@@ -1,4 +1,4 @@
-![international federation blue dot](D:\billysFile\IDEAS\law, politics\InternationalFederation\international federation blue dot.png)
+![international federation blue dot](international federation blue dot.png)
 
 A constitution and laws for a limited international government designed to eliminate war. 
 
